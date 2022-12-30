@@ -1,0 +1,1 @@
+# Pi-den-Herhangi-Bir-Cihaza-Veri-G-nderme-Mail-Yoluyla-
